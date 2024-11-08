@@ -1,2 +1,22 @@
-# chatgptfree
-汇总20个国内ChatGPT中文版镜像网站【精选】
+# 汇总20个国内ChatGPT中文版镜像网站【精选】
+
+1. https://snakegpt.work
+2. https://gptcat.net/
+3. [https://ai-panda.xyz/](https://ai-panda.xyz/login?invite_code=34137c47)
+4. http://gptdog.online/
+5. https://ai.minihuo.com/#/chat/1002
+6. https://freechatgpt.lol/
+7. https://chatai.lra.cn/#/home/chat
+8. https://chat.haoce.com/
+9. https://vipag4.aibeke.com/
+10. https://www.chatnext.top
+11. https://snakegpt.work?inVitecode=PUWFCNERUN
+12. https://www.chatnext.top
+13. https://ai117.com/
+14. https://freechatgpt.lol/
+15. https://poe.com
+16. http://chat8.zjqywl.cn/chatbotai/1002?channel=360toufangzt9
+17. http://gp.yangxiwl.cn/chatmax/chat/1691915246543?channel=baidumaxguizhou&bd_vid=11561269466905197062
+18. https://chatai.lra.cn/#/home/chat
+19. https://yiyan.baidu.com/welcome
+20. https://xinghuo.xfyun.cn/
